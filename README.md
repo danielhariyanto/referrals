@@ -1,4 +1,4 @@
-# Referrals for Financial Success 🤑🙂‍↔️
+# Referrals for Financial Success 🤑
 
 ## Where are you storing your cash?
 Put it in a high-yield savings account that offer >4% interest rates, a.k.a. APR ($1000 * 0.04 = free $40 every year)
