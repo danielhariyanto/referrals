@@ -12,6 +12,7 @@ Strategy:
 As long as you pay your credit card bills, you should use credit cards since they give tons of rewards. Credit cards = free money!
 
 Best credit card strategies:
+
 OPTION 1 (my personal strategy)
 1. Capital One SavorOne - [CLICK HERE](https://i.capitalone.com/GpXh9hyu7)
 2. Capital One Venture X - [CLICK HERE](https://i.capitalone.com/J8A1k9Uf4)
