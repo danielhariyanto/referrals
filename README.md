@@ -26,6 +26,7 @@ OPTIONAL: if you pay rent, definitely get Bilt - [CLICK HERE](https://bilt.page/
 
 For those that don't have a credit score yet, I recommend Discover for your first credit card - [CLICK HERE](https://refer.discover.com/s/dthariyanto?advocate.partner_share_id=8528181666)
 
+If you want to start racking up points, check out Amex Platinum - [CLICK HERE](https://americanexpress.com/en-us/referral/platinum-card?ref=DANIEHZuSD&XL=MIMNS)
 
 ## Investing
 Don't buy liabilities, buy assets!
